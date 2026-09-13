@@ -1,2 +1,2 @@
-# B-i-c-nh-n-H-c-S-u
+# Nhóm Học Sâu của 4 SV
 Done
